@@ -55,7 +55,7 @@ No copyright infringement is intended.
 
 ---
 ## video explainer: 
-https://youtu.be/UqIX3bnoirA?si=FAf51T78pqwcw6ye 
+https://youtu.be/hosN_OOKvu8
 
 ## 🛡 Licenses
 
