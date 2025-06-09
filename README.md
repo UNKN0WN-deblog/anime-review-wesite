@@ -54,6 +54,8 @@ All anime logos (e.g. AOT, Demon Slayer, One Piece) are sourced from **public do
 No copyright infringement is intended.
 
 ---
+## video explainer: 
+https://youtu.be/UqIX3bnoirA?si=FAf51T78pqwcw6ye 
 
 ## 🛡 Licenses
 
